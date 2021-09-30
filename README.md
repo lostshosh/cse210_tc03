@@ -1,2 +1,1 @@
-# cse210_tc03
-W03 group project
+My name is Brian Bawden and I live in Canton, GA with my wife of 16 years and our two kids. I currently work as a Sign Language interpreter for the deaf and run my own pest control business. My favorite activity is to be in the woods, preferably hiking and backpacking. 
