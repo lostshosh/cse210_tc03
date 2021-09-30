@@ -1,2 +1,1 @@
-# cse210_tc03
-W03 group project
+My name is Larry and I currently live in Shoshone, Idaho. I was born and rasied in Logan, Utah. My family moved to Idaho nine years ago after a job loss. My wife and I have been married for twenty-one years and we have three children. I spend most of my free time working in the garden or tinkering in the garage. 
